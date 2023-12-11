@@ -1,4 +1,4 @@
-## 🌈 Hiiii! 🌈 
+## 🌈 Hi! 🌈 
 
 ### I'm Karine, but you can call me Ka 😊 
 ##
